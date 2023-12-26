@@ -4,7 +4,7 @@
 -------------------------
 
 > # OBEBE GETEA : 
-https://www.mediafire.com/file/2q4cwhv2jcj5c1u/OBB_V2.00_GTA_San_Andreas.zip/file
+> https://www.mediafire.com/file/2q4cwhv2jcj5c1u/OBB_V2.00_GTA_San_Andreas.zip/file
 
 -------------------------
 
